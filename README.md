@@ -3,9 +3,6 @@
 
 
 
-
-### By Sharon Maswai
-
 ****************************************************************************************************************************
 ![Hypothyroidism](https://www.standardmedia.co.ke/ureport-uploads/FILE-1585825190.jpg)
 
